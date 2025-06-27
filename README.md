@@ -1,5 +1,5 @@
 # 💫 About Me:
-🚀 Passionate about marketing & innovation<br>💡 Creative thinker with a tech edge<br>🗣️ Strong communicator & team player<br>⚡ Fast learner & adaptable<br>🎯 Focused on impact & results<br><br>
+🚀 Passionate about Artificial Intelligence & innovation<br>💡 Creative thinker with a tech edge<br>🗣️ Strong communicator & team player<br>⚡ Fast learner & adaptable<br>🎯 Focused on impact & results<br><br>
 
 
 ## 🌐 Socials:
